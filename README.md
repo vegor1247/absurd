@@ -1,0 +1,2 @@
+# absurd
+Chto tyt est'?
